@@ -1,4 +1,10 @@
 # Kirtan-Patel-Resume
+Email - kirtanspatel74@gmail.com
+
+Cell - (810)-348-2138
+
+LinkedIn - [Kirtan Patel](https://www.linkedin.com/in/kirtan-patel-a2158b295)
+
 <h1>Summary of Skillset</h1> 
 •	Intermediate skills in financial modeling, data analysis.
 
